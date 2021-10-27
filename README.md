@@ -1,5 +1,5 @@
 Hi guys, i'm Yunara, one of the founders of the "Engoutube" project.
-The engoutube is a kind of a VTuber Agency but it's not. Fan Art #EngouArt on twitter. Check out our [website]() (close) for more information.
+The engoutube is a kind of a VTuber Agency but it's actually not. Fan Art #EngouArt on twitter. Check out our [website]() (close) for more information.
 
 
 <!---
